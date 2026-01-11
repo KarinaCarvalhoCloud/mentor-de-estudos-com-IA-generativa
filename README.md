@@ -1,0 +1,1 @@
+# mentor-de-estudos-com-IA-generativa
